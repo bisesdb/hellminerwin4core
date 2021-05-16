@@ -1,0 +1,1 @@
+# hellminerwin4core
